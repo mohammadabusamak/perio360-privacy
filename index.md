@@ -5,7 +5,7 @@ title: Perio360 — Privacy Policy
 
 # Perio360 — Privacy Policy
 
-**Last updated: June 4, 2026**
+**Last updated: June 8, 2026**
 
 ---
 
